@@ -1,0 +1,1 @@
+# Apk-Edit-Licence
